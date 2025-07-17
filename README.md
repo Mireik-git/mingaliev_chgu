@@ -1,0 +1,1 @@
+# mingaliev_chgu
